@@ -1,5 +1,5 @@
 <p align="center"> 
- dni proshippers yall are werid 
+ dni proshippers yall are weird 
 </p>
 
 <p align="center"> 
