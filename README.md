@@ -1,4 +1,8 @@
 <p align="center"> 
+ dni proshippers yall are werid 
+</p>
+
+<p align="center"> 
   Renee 🐰 <a href="https://en.pronouns.page/@bingus333bongus">they/them</a> 🐰 19 
 </p>
 
